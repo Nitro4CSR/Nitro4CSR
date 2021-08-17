@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nitro4CSR
+- 👀 I’m interested in basic coding and CSR2 Modding
+- 🌱 I’m currently learning more coding
+- 💞️ I’m looking to collaborate on creating a database for all CSR2 rare import car codes
+- 📫 How to reach me: i have a YT-Channel named Nitro4CSR and a discord server: https://discord.gg/Qq8cY2f 
